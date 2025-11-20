@@ -2,6 +2,7 @@
 
 **Chief Technology Officer** at [Evu](https://www.evu.com)  
 *Manhattan · Palo Alto · Tel Aviv*
+<img width="1600" height="477" alt="image" src="https://github.com/user-attachments/assets/eeb0a131-8048-4b59-b42d-7f08c49bbae9" />
 
 ---
 
